@@ -2,5 +2,5 @@
 repository
 Hi,
 
-I like all kinds of food.
-Little secret, I once wanted to learn fashion design.
+I like all kinds of food.(But it's hard for me to gain weight.）.
+
